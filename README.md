@@ -1,2 +1,0 @@
-# ddefrvgtrr4esdfg
-math
